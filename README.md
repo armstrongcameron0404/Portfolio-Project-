@@ -1,1 +1,1 @@
-I am a critical thinker, innovator, problem solver and I don't crack under pressure. I manage data set's, make buse story telling data ensuring client's always get best of their raw data. I also have excellent customer service skills.
+I am a critical thinker, innovator, problem solver and I don't crack under pressure. I manage data set's, make use story telling data ensuring client's always get best of their raw data. I also have excellent customer service skills.

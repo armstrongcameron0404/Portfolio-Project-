@@ -1,0 +1,1 @@
+I am a critical thinker, innovator, problem solver and I don't crack under pressure. I am a people's person and know how to work with all types of clients. I also have excellent customer service skills.
